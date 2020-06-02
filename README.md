@@ -1,4 +1,2 @@
 # wechat_group
 nothing
-s52.app1109959580.qqopenapp.com/qfabf-qdaqeucwdrqc-ezsaqtderqersrcrxqfxseuuffvycquyqqzwxztegspmrvboh#
-s52.app1109959580.qqopenapp.com/xdqadcdqf-xaa-quaqbqudarccaudqwcrrxbqxbscuaubvayquyqqzwxqyrze#
